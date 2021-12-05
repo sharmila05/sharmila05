@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sharmila05
-- 👀 I’m interested in Travelling
+- 👀 I’m interested in learning new things
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on mail
 - 📫 How to reach me sharmilapal1808@gmail.com
